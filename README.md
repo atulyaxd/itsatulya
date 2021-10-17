@@ -1,4 +1,4 @@
-- 🕺  I'm Atulya
+- :point_right:  I'm Atulya
 - 🔭 I’m currently working on my skills
 - 🌱 I’m currently learning everything
 - 👯 I’m looking to collaborate on anything
